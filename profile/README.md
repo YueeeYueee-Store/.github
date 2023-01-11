@@ -5,6 +5,6 @@
 ## 聯絡方式
 
 * [Discord 伺服器](https://discord.gg/YueeeYueee)
-* [LINE 社群] (https://line.me/ti/g2/i_cwjLJDzmlh6xKnE9fWXRJ0ifGwJwtpx5ONEQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default)
-* [Telegram 頻道] (https://t.me/yueeeyueee)
-* [Discord 備用伺服器] (https://discord.gg/EsKGs7uJ5s)
+* [LINE 社群](https://line.me/ti/g2/i_cwjLJDzmlh6xKnE9fWXRJ0ifGwJwtpx5ONEQ?utm_source=invitation&utm_medium=link_copy&utm_campaign=default)
+* [Telegram 頻道](https://t.me/yueeeyueee)
+* [Discord 備用伺服器](https://discord.gg/EsKGs7uJ5s)
